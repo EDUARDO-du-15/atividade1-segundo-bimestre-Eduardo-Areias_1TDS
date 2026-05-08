@@ -1,1 +1,0 @@
-# atividade1-segundo-bimestre-Eduardo-Areias_1TDS
